@@ -1,6 +1,8 @@
 Thailand GO!
 ===================
 
+[地圖](https://www.google.com/maps/d/edit?mid=1Yvq8hEL3CtrpHX3vjD71PSkgmRM)    
+
 
 >第一天(2/26) in Bangkok   
 `13:55 ~ 16:45 抵達曼谷 `  
